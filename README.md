@@ -1,1 +1,1 @@
-# aplicaciones-h-bridas-comisi-n
+# aplicaciones-hibridas-comision
